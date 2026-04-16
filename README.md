@@ -1,0 +1,1 @@
+# jewelry-design-ai
